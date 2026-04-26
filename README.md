@@ -20,9 +20,9 @@ Log: Dentum mortir pertama Haganah, pertahanan Tall al-Rish, dan heroisme pemuda
 
 - [medical-witness](https://github.com/BlackAlph4ndr01D/The-Jaffa-Anchor/blob/main/medical-witness.md): Catatan Rumah Sakit Prancis (Ajami) & Suster Marie Alphonsine.
 
-- /maritime-legacy/: Jejak pangkalan laut pertama (Muawiyah bin Abu Sufyan) hingga ekonomi Jeruk Jaffa.
+- [maritime-legacy](): Jejak pangkalan laut pertama (Muawiyah bin Abu Sufyan) hingga ekonomi Jeruk Jaffa.
 
-- /infiltrated-ai-bias/: Analisis objektif terhadap data mining (Gemini, ChatGPT, Copilot, Grok) terkait genosida Gaza & ethnic cleansing Tepi Barat.
+- [infiltrated-ai-bias](https://github.com/BlackAlph4ndr01D/The-Jaffa-Anchor/blob/main/infiltrated-ai-bias.md): Analisis objektif terhadap data mining (Gemini, ChatGPT, Copilot, Grok) terkait genosida Gaza & ethnic cleansing Tepi Barat.
 ---
 🎯 OBJECTIVES
 Preservasi Narasi: Menyimpan data digital footprint sejarah Jaffa agar tidak dapat dimodifikasi oleh propaganda Hasbara.
