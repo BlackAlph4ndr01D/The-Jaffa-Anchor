@@ -12,7 +12,7 @@
 
 ---
 📂 DIRECTORY STRUCTURE
-- [24 April 1948]() Ketika Jaffa kehilangan suaranya
+- [24 April 1948](https://github.com/BlackAlph4ndr01D/The-Jaffa-Anchor/blob/main/24%20April%201948) Ketika Jaffa kehilangan suaranya
 
 - [1948-tall-al-rish](https://github.com/BlackAlph4ndr01D/The-Jaffa-Anchor/blob/main/1948-tall-al-rish.md): Dokumentasi Pertempuran Jaffa (26-27 April 1948).
 
