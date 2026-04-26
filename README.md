@@ -16,7 +16,7 @@
 
 Log: Dentum mortir pertama Haganah, pertahanan Tall al-Rish, dan heroisme pemuda berkeffiyeh.
 
-- /medical-witness/: Catatan Rumah Sakit Prancis (Ajami) & Suster Marie Alphonsine.
+- [medical-witness(https://github.com/BlackAlph4ndr01D/The-Jaffa-Anchor/blob/main/medical-witness.md): Catatan Rumah Sakit Prancis (Ajami) & Suster Marie Alphonsine.
 
 - /maritime-legacy/: Jejak pangkalan laut pertama (Muawiyah bin Abu Sufyan) hingga ekonomi Jeruk Jaffa.
 
