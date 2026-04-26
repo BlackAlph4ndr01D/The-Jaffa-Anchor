@@ -1,85 +1,45 @@
-24 APRIL 1948: KETIKA JAFFA KEHILANGAN SUARANYA  
+PERTEMPURAN JAFFA, 26–27 APRIL 1948: 
 
-Berdasarkan Kesaksian Warga Yazur & Jaffa dalam "All That Remains" oleh Walid Khalidi
+DUA HARI DI ANTARA BUKIT DAN RUMAH SAKIT
 
----
+26 APRIL 1948. PUKUL 05.00. TALL AL-RISH.
 
-I. Azan yang Terhenti di Menara Hasan Bey
+Mortir membangunkan kota untuk hari kedua. Dari arah Holon, dentum 120 mm milik Brigade Giv’ati teratur, seperti jam yang menghitung mundur. 
 
-24 April 1948, bertepatan dengan 15 Nisan 5708.  
-Di Tel Aviv, perayaan Pesach dimulai dengan pembacaan Haggadah: “Tahun ini kita masih budak, tahun depan di Yerusalem.”  
+Komandan mereka, Shimon Avidan, sudah menduduki Desa Khayriya sehari sebelumnya. Kini moncongnya diarahkan ke barat. 
 
-Delapan kilometer di selatan, Haganah melancarkan Mivtza Hametz — Operasi Hametz. 
+Di atas bukit yang jaraknya 5.5 kilometer ke timur dari Menara Jam Jaffa, detasemen Ikhwanul Muslimin menggali parit di antara akar pohon jeruk. 
 
-Hametz, dalam tradisi Yahudi, merujuk pada ragi yang wajib disingkirkan dari setiap rumah sebelum Pesach. 
+Bukit itu Tall al-Rish — tanah terakhir sebelum Brigade Giv’ati bisa menatap langsung ke atap-atap pemukiman Ajami.
 
-Pada malam tersebut, desa-desa di lingkar Jaffa diperlakukan sebagai hametz yang harus dibersihkan.
+Ajami adalah kampung di selatan Jaffa, pinggir laut. Rumah-rumah batu kuning dua-tiga lantai, atapnya datar, banyak yang punya teras menghadap Mediterania. 
 
-Sasaran awal operasi: Yazur dan Salameh.  
-Persenjataan yang digunakan: mortir 3-inci dan Davidka. 
+Di sanalah Hôpital Français Saint-Louis berdiri, di Jalan Yefet. Di sanalah keluarga Kristen dan Muslim kelas menengah Jaffa tinggal. 
 
-Davidka dikenal tidak akurat, namun menghasilkan dentuman yang menggetarkan.
+Jika Tall al-Rish jatuh, Ajami tidak lagi terlindung. Mortir dan senapan mesin Giv’ati akan punya jarak pandang langsung ke jendela rumah sakit, ke teras-teras yang menghadap laut, ke pelabuhan tempat perahu-perahu terikat.
 
-Tujuan utamanya adalah menciptakan kepanikan massal, bukan penghancuran presisi.
+Daerah itu dipertahankan puluhan pemuda berkeffiyeh. 
 
-II. “Kami Meninggalkan Roti di Atas Meja” — Kesaksian Muhammad ‘Abd al-Rahman
+Kamil al-Syarif menulis, “kami kurang dari seratus”. Benny Morris mencatat, “dozens”. 
 
-Muhammad ‘Abd al-Rahman, petani berusia 28 tahun asal Yazur, memberikan kesaksian yang dicatat Walid Khalidi, hal. 260:
+Senjata: satu Bren, beberapa Lee-Enfield. Di belakang mereka, 2.5 kilometer ke barat, di Abu Kabir, adalah garis pertahanan berikutnya. 
 
-> “Penembakan dimulai setelah Isya. Proyektil Davidka jatuh di kebun jeruk. Anak-anak menjerit. Kami tidak melakukan perlawanan. Kami tidak memiliki senjata. Yang kami miliki hanyalah kunci rumah.”  
-> “Istri saya membungkus roti taboon yang masih hangat. Kami menyangka akan kembali keesokan harinya. Roti itu kami tinggalkan di atas meja. Hingga kini meja tersebut mungkin masih berada di sana, apabila rumahnya belum diratakan.”
+Di belakang Abu Kabir lagi, 4 kilometer dari Tall al-Rish, adalah kawasan Salameh yang sudah digebuk Brigade Giv’ati sejak 25 April. 
 
-Dalam rentang 24 April hingga 30 April 1948, Yazur dikosongkan. Sebanyak 6.500 penduduk Yazur mengungsi ke Jaffa. Mereka berjalan kaki dengan membawa kunci rumah, sertifikat tanah, dan foto keluarga.
+Dan 5.5 kilometer dari Tall al-Rish, di Jalan Yefet, di jantung Ajami, Suster-suster St. Joseph menyiapkan pembalut dan air. Jarak itu, di peta, hanyalah semata garis. 
 
-III. Pelabuhan yang Tidak Mampu Menampung — Kesaksian Ahmad Hammami
+Di 26 April, itu jarak antara hidup dan mati: 1.5 jam jalan kaki memikul tandu, jika tidak ada mortir.
 
-Ahmad Hammami, nelayan Jaffa yang saat itu berusia 19 tahun. Khalidi, hal. 248:
+Pukul 10.00. SAKIA JATUH.
 
-> “Pelabuhan dipenuhi manusia. Pengungsi dari Salameh, Khayriya, dan Sakia berdesakan. Perahu saya hanya mampu mengangkut 15 orang. Saya berlayar bolak-balik sebanyak tiga kali malam itu. Pada pelayaran keempat, pasukan Haganah telah menguasai atap-atap di Manshiyya. Saya tidak dapat kembali.”  
-> “Laut tampak hitam, namun setiap kali dayung saya terangkat, yang terlihat adalah rambut. Rambut perempuan. Rambut anak-anak.”
+Enam kilometer timur laut Menara Jam, di sisi selatan Sungai Ayalon, desa Sakia terbakar. 
 
-13 Mei 1948, Jaffa menyerah. Dari populasi awal 70.000–80.000 jiwa, hanya tersisa 3.600–4.000 jiwa. Selebihnya mengungsi ke Gaza, Lebanon, atau hilang di laut.
+Brigade Giv’ati masuk setelah pemboman pagi. Penduduknya lari ke barat, melewati kebun-kebun yang sama tempat Ikhwan menggali parit. 
 
-IV. Arahan dari Damaskus yang Tidak Pernah Tiba
+Di belakang Sakia, dua kilometer lebih ke timur, Kafr Ana — desa dengan 3000 jiwa yang kini menjadi kota Or Yehuda — juga sudah ditaklukkan Brigade Giv’ati sehari sebelumnya. Dua desa itu kini menjadi pijakan mortir yang mengarah ke Jaffa. 
 
-Ketika Yazur dibombardir, Kolonel Husni Za’im di Damaskus tengah mempelajari peta militer. Angkatan Darat Suriah belum menerima perintah untuk bergerak. Komunikasi telepon dari Glubb Pasha di Amman menegaskan: “Jaffa not your sector. Hold the West Bank.” 
+Abu Ibrahim, pedagang di pasar Jaffa, menyaksikan: “Tanggal 27, mereka datang tanpa alas kaki. Debu menutupi rambut mereka. Mereka bilang Sakia sudah jadi abu. Dari Tall al-Rish masih ada suara tembakan. Tapi kami di bawah tidak tahu, apakah itu kawan atau lawan.”
 
-"Jaffa bukan urusanmu. Pertahankan saja Tepi Barat."
+Di Tall al-Rish, suara tembakan itu adalah sisa detasemen pasukan Ikhwan. Kamil al-Syarif mencatat malam itu: “Kami kehilangan lebih dari separuh saudara sebelum datangnya bantuan.” 
 
-Pernyataan ini terdokumentasi dalam memoar John Bagot Glubb, A Soldier with the Arabs.
-
-Akibatnya, sejak 24 April hingga 14 Mei, Jaffa jatuh tanpa memperoleh bantuan militer Arab. Pasukan Suriah baru memasuki Palestina pada 15 Mei 1948 — terlambat hampir sebulan.
-
-V. Kunci Berukir Tahun 1892
-
-Walid Khalidi mendokumentasikan wawancara di kamp pengungsi Tel al-Zaatar, Lebanon, pada dekade 1970-an. Ia menemui satu keluarga asal Yazur. Di dinding tempat tinggal mereka tergantung sebuah kunci besi berukuran besar.
-
-Pemiliknya, Hajj Ibrahim ‘Awad, menyatakan kepada Khalidi:
-
-> “Ini kunci rumah kami di Yazur. Kakek saya yang mengukirnya pada tahun 1892. Saya membawanya saat mengungsi pada 30 April 1948. Saya memperkirakan akan kembali dalam tiga hari. Kini sudah berjalan 22 tahun.”  
-> “Anak saya lahir di kamp pengungsian. Ia bertanya: ‘Wahai Ayah, Yazur itu apa?’ Saya menjawab: ‘Yazur adalah kunci ini. Apabila kunci ini dapat membuka pintu, maka Yazur masih ada.’”
-
-Saat ini Yazur bernama Ibrani, Azor. Di atas tanahnya telah berdiri kompleks apartemen dan kawasan industri Tel Aviv.
-
-Masjid Yazur dialihfungsikan menjadi sinagoga.
-
-VI. Epilog: Statistik yang Memiliki Nyawa
-
-24 April 1948 bukan sekadar penanda waktu. Ia merupakan kata kerja.
-
-Menghametz-kan: proses sistematis yang mengubah sebuah kota menjadi elemen yang dianggap asing, kemudian disingkirkan ke laut dan kamp pengungsian.
-
-Data Walid Khalidi: 31 desa di Distrik Jaffa dihancurkan selama April–Mei 1948. Sebanyak 95% penduduknya menjadi pengungsi.  
-
-Data Perserikatan Bangsa-Bangsa tahun 1949: 66.000 pengungsi dari Jaffa terdaftar di UNRWA.  
-
-Estimasi saat ini: keturunan mereka berjumlah ±500.000 jiwa, tersebar dari Gaza hingga Yarmouk di Suriah.
-
-
-
----
-
-Referensi Utama:  
-Walid Khalidi, All That Remains: The Palestinian Villages Occupied and Depopulated by Israel in 1948, 1992. Entri Yazur hal. 260-261, Salameh hal. 257-258, Jaffa hal. 246-250.
-Benny Morris, The Birth of the Palestine Refugee Problem Revisited, 2004, hal. 217-223: rincian Operasi Hametz.
-Arsip Haganah: Laporan Brigade Alexandroni, 24 April – 13 Mei 1948.
+Ia tidak menulis nama. Ia hanya menulis jarak: antara bukit ini dan atap-atap Ajami, terlalu jauh untuk bantuan, terlalu dekat untuk menyerah.
