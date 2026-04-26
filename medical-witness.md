@@ -1,4 +1,4 @@
-SENJA MURAM DI JAFFA
+# SENJA MURAM DI JAFFA
 
 Pukul 16.00. RUMAH SAKIT PRANCIS, AJAMI, JALAN YEFET.
 
@@ -45,6 +45,7 @@ Itu suara dari Tall al-Rish. 5.5 km dari rumah sakit di Ajami. 6 km dari Sakia y
 Maka mereka tidak mundur. Mereka terus bertahan sepanjang 26-27 April. Dan karena itu, Jaffa mendapat dua hari.
 
 ---
+>> source : Whatsapp Channel Risalah Amar
 
 Catatan Sumber:
 Brigade Giv’ati: Morris, 1948, hlm. 217-218; Gelber, Palestine 1948, hlm. 155-156.
@@ -52,3 +53,5 @@ Ajami Quarter: Khalidi, Before Their Diaspora, hlm. 283, peta Jaffa 1946. Deskri
 Jarak & lokasi: Khalidi, All That Remains, Sakia hlm. 257, Kafr Ana hlm. 246. Peta IPS Jaffa 1946 untuk RS Prancis di Yefet St.
 Kesaksian sipil: Um Khalid & Abu Ibrahim dari Khalidi, Before Their Diaspora hlm. 287, 290. Suster Marie dari laporan ICRC April 1948.
 Korban Ikhwan: Kamil al-Syarif, Al-Ikhwan fi Falasthin, hlm. 74-76. Morris hlm. 220: “dozens died”.
+
+
