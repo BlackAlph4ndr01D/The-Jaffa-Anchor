@@ -1,0 +1,85 @@
+24 APRIL 1948: KETIKA JAFFA KEHILANGAN SUARANYA  
+
+Berdasarkan Kesaksian Warga Yazur & Jaffa dalam "All That Remains" oleh Walid Khalidi
+
+---
+
+I. Azan yang Terhenti di Menara Hasan Bey
+
+24 April 1948, bertepatan dengan 15 Nisan 5708.  
+Di Tel Aviv, perayaan Pesach dimulai dengan pembacaan Haggadah: “Tahun ini kita masih budak, tahun depan di Yerusalem.”  
+
+Delapan kilometer di selatan, Haganah melancarkan Mivtza Hametz — Operasi Hametz. 
+
+Hametz, dalam tradisi Yahudi, merujuk pada ragi yang wajib disingkirkan dari setiap rumah sebelum Pesach. 
+
+Pada malam tersebut, desa-desa di lingkar Jaffa diperlakukan sebagai hametz yang harus dibersihkan.
+
+Sasaran awal operasi: Yazur dan Salameh.  
+Persenjataan yang digunakan: mortir 3-inci dan Davidka. 
+
+Davidka dikenal tidak akurat, namun menghasilkan dentuman yang menggetarkan.
+
+Tujuan utamanya adalah menciptakan kepanikan massal, bukan penghancuran presisi.
+
+II. “Kami Meninggalkan Roti di Atas Meja” — Kesaksian Muhammad ‘Abd al-Rahman
+
+Muhammad ‘Abd al-Rahman, petani berusia 28 tahun asal Yazur, memberikan kesaksian yang dicatat Walid Khalidi, hal. 260:
+
+> “Penembakan dimulai setelah Isya. Proyektil Davidka jatuh di kebun jeruk. Anak-anak menjerit. Kami tidak melakukan perlawanan. Kami tidak memiliki senjata. Yang kami miliki hanyalah kunci rumah.”  
+> “Istri saya membungkus roti taboon yang masih hangat. Kami menyangka akan kembali keesokan harinya. Roti itu kami tinggalkan di atas meja. Hingga kini meja tersebut mungkin masih berada di sana, apabila rumahnya belum diratakan.”
+
+Dalam rentang 24 April hingga 30 April 1948, Yazur dikosongkan. Sebanyak 6.500 penduduk Yazur mengungsi ke Jaffa. Mereka berjalan kaki dengan membawa kunci rumah, sertifikat tanah, dan foto keluarga.
+
+III. Pelabuhan yang Tidak Mampu Menampung — Kesaksian Ahmad Hammami
+
+Ahmad Hammami, nelayan Jaffa yang saat itu berusia 19 tahun. Khalidi, hal. 248:
+
+> “Pelabuhan dipenuhi manusia. Pengungsi dari Salameh, Khayriya, dan Sakia berdesakan. Perahu saya hanya mampu mengangkut 15 orang. Saya berlayar bolak-balik sebanyak tiga kali malam itu. Pada pelayaran keempat, pasukan Haganah telah menguasai atap-atap di Manshiyya. Saya tidak dapat kembali.”  
+> “Laut tampak hitam, namun setiap kali dayung saya terangkat, yang terlihat adalah rambut. Rambut perempuan. Rambut anak-anak.”
+
+13 Mei 1948, Jaffa menyerah. Dari populasi awal 70.000–80.000 jiwa, hanya tersisa 3.600–4.000 jiwa. Selebihnya mengungsi ke Gaza, Lebanon, atau hilang di laut.
+
+IV. Arahan dari Damaskus yang Tidak Pernah Tiba
+
+Ketika Yazur dibombardir, Kolonel Husni Za’im di Damaskus tengah mempelajari peta militer. Angkatan Darat Suriah belum menerima perintah untuk bergerak. Komunikasi telepon dari Glubb Pasha di Amman menegaskan: “Jaffa not your sector. Hold the West Bank.” 
+
+"Jaffa bukan urusanmu. Pertahankan saja Tepi Barat."
+
+Pernyataan ini terdokumentasi dalam memoar John Bagot Glubb, A Soldier with the Arabs.
+
+Akibatnya, sejak 24 April hingga 14 Mei, Jaffa jatuh tanpa memperoleh bantuan militer Arab. Pasukan Suriah baru memasuki Palestina pada 15 Mei 1948 — terlambat hampir sebulan.
+
+V. Kunci Berukir Tahun 1892
+
+Walid Khalidi mendokumentasikan wawancara di kamp pengungsi Tel al-Zaatar, Lebanon, pada dekade 1970-an. Ia menemui satu keluarga asal Yazur. Di dinding tempat tinggal mereka tergantung sebuah kunci besi berukuran besar.
+
+Pemiliknya, Hajj Ibrahim ‘Awad, menyatakan kepada Khalidi:
+
+> “Ini kunci rumah kami di Yazur. Kakek saya yang mengukirnya pada tahun 1892. Saya membawanya saat mengungsi pada 30 April 1948. Saya memperkirakan akan kembali dalam tiga hari. Kini sudah berjalan 22 tahun.”  
+> “Anak saya lahir di kamp pengungsian. Ia bertanya: ‘Wahai Ayah, Yazur itu apa?’ Saya menjawab: ‘Yazur adalah kunci ini. Apabila kunci ini dapat membuka pintu, maka Yazur masih ada.’”
+
+Saat ini Yazur bernama Ibrani, Azor. Di atas tanahnya telah berdiri kompleks apartemen dan kawasan industri Tel Aviv.
+
+Masjid Yazur dialihfungsikan menjadi sinagoga.
+
+VI. Epilog: Statistik yang Memiliki Nyawa
+
+24 April 1948 bukan sekadar penanda waktu. Ia merupakan kata kerja.
+
+Menghametz-kan: proses sistematis yang mengubah sebuah kota menjadi elemen yang dianggap asing, kemudian disingkirkan ke laut dan kamp pengungsian.
+
+Data Walid Khalidi: 31 desa di Distrik Jaffa dihancurkan selama April–Mei 1948. Sebanyak 95% penduduknya menjadi pengungsi.  
+
+Data Perserikatan Bangsa-Bangsa tahun 1949: 66.000 pengungsi dari Jaffa terdaftar di UNRWA.  
+
+Estimasi saat ini: keturunan mereka berjumlah ±500.000 jiwa, tersebar dari Gaza hingga Yarmouk di Suriah.
+
+
+
+---
+
+Referensi Utama:  
+Walid Khalidi, All That Remains: The Palestinian Villages Occupied and Depopulated by Israel in 1948, 1992. Entri Yazur hal. 260-261, Salameh hal. 257-258, Jaffa hal. 246-250.
+Benny Morris, The Birth of the Palestine Refugee Problem Revisited, 2004, hal. 217-223: rincian Operasi Hametz.
+Arsip Haganah: Laporan Brigade Alexandroni, 24 April – 13 Mei 1948.
