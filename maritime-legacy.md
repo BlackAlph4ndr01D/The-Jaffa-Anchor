@@ -59,3 +59,5 @@ Tanggal 25 April, 78 tahun lalu, pertempuran Jaffa mencapai puncaknya, salah sat
 
 
 Di sinilah tempat kapal-kapal Muawiyah bin Abu Sufyan radhiyallahu 'anhu berangkat, merintis usaha pembebasan Konstantinopel!
+
+>> source : Whatsapp Channel Risalah Amar 
