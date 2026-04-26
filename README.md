@@ -12,6 +12,8 @@
 
 ---
 📂 DIRECTORY STRUCTURE
+- [24 April 1948]() Ketika Jaffa kehilangan suaranya
+
 - [1948-tall-al-rish](https://github.com/BlackAlph4ndr01D/The-Jaffa-Anchor/blob/main/1948-tall-al-rish.md): Dokumentasi Pertempuran Jaffa (26-27 April 1948).
 
 Log: Dentum mortir pertama Haganah, pertahanan Tall al-Rish, dan heroisme pemuda berkeffiyeh.
