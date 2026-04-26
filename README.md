@@ -14,14 +14,15 @@
 📂 DIRECTORY STRUCTURE
 - [24 April 1948](https://github.com/BlackAlph4ndr01D/The-Jaffa-Anchor/blob/main/24%20April%201948) Ketika Jaffa kehilangan suaranya
 
-- [1948-tall-al-rish](https://github.com/BlackAlph4ndr01D/The-Jaffa-Anchor/blob/main/1948-tall-al-rish.md): Dokumentasi Pertempuran Jaffa (26-27 April 1948).
+- 25 April 1948 [maritime-legacy](): Jejak pangkalan laut pertama (Muawiyah bin Abu Sufyan) hingga ekonomi Jeruk Jaffa.
 
-Log: Dentum mortir pertama Haganah, pertahanan Tall al-Rish, dan heroisme pemuda berkeffiyeh.
+-  26-27 April 1948   [1948-tall-al-rish](https://github.com/BlackAlph4ndr01D/The-Jaffa-Anchor/blob/main/1948-tall-al-rish.md): Dokumentasi Pertempuran Jaffa 
 
+***Log: Dentum mortir pertama Haganah, pertahanan Tall al-Rish, dan heroisme pemuda berkeffiyeh.***
+  
 - [medical-witness](https://github.com/BlackAlph4ndr01D/The-Jaffa-Anchor/blob/main/medical-witness.md): Catatan Rumah Sakit Prancis (Ajami) & Suster Marie Alphonsine.
 
-- [maritime-legacy](): Jejak pangkalan laut pertama (Muawiyah bin Abu Sufyan) hingga ekonomi Jeruk Jaffa.
-
+## 26 April 2026
 - [infiltrated-ai-bias](https://github.com/BlackAlph4ndr01D/The-Jaffa-Anchor/blob/main/infiltrated-ai-bias.md): Analisis objektif terhadap data mining (Gemini, ChatGPT, Copilot, Grok) terkait genosida Gaza & ethnic cleansing Tepi Barat.
 ---
 🎯 OBJECTIVES
