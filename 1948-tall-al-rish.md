@@ -42,4 +42,7 @@ Abu Ibrahim, pedagang di pasar Jaffa, menyaksikan: “Tanggal 27, mereka datang 
 
 Di Tall al-Rish, suara tembakan itu adalah sisa detasemen pasukan Ikhwan. Kamil al-Syarif mencatat malam itu: “Kami kehilangan lebih dari separuh saudara sebelum datangnya bantuan.” 
 
-Ia tidak menulis nama. Ia hanya menulis jarak: antara bukit ini dan atap-atap Ajami, terlalu jauh untuk bantuan, terlalu dekat untuk menyerah.
+Ia tidak menulis nama. Ia hanya menulis jarak: antara bukit ini dan atap-atap Ajami, terlalu jauh untuk bantuan, terlalu dekat untuk menyerah.  
+
+
+>> source : Whatsapp Channel Risalah Amar
