@@ -1,4 +1,4 @@
-   #  ANACONDA PROTOCOL | REPO-06: YAFA (JAFFA)
+# ANACONDA PROTOCOL | REPO-06: YAFA (JAFFA)
 "Kebenaran tidak butuh pengakuan, ia hanya butuh untuk tidak dilupakan."
 ---
 🏛️ OVERVIEW:
@@ -6,6 +6,10 @@
 ### Repo ini adalah Jangkar Sejarah (Anchor) bagi seluruh ekosistem Anaconda Protocol. Jika 990 halaman di repo lain adalah forensik digital atas kejahatan militer AI masa kini, maka Repo-06 adalah bukti otentik atas tanah tempat perlawanan ini berpijak: Yafa (Jaffa).
 
 #### Anaconda Protocol berumah di Jaffa. Kami menolak penghapusan memori digital melalui bias algoritma dan sensor sistem.
+
+<img width="100%" height="max" alt="WhatsApp Image 2026-04-26 at 11 33 06" src="https://github.com/user-attachments/assets/4acc5e5a-dd72-4e95-8f9a-aba2cda37bfd" />
+(sumber foto : channel WA Risalah Amar)
+
 ---
 📂 DIRECTORY STRUCTURE
 - /1948-tall-al-rish/: Dokumentasi Pertempuran Jaffa (26-27 April 1948).
