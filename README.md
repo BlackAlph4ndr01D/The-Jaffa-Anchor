@@ -6,8 +6,8 @@
 ### Repo ini adalah Jangkar Sejarah (Anchor) bagi seluruh ekosistem Anaconda Protocol. Jika 990 halaman di repo lain adalah forensik digital atas kejahatan militer AI masa kini, maka Repo-06 adalah bukti otentik atas tanah tempat perlawanan ini berpijak: Yafa (Jaffa).
 
 #### Anaconda Protocol berumah di Jaffa. Kami menolak penghapusan memori digital melalui bias algoritma dan sensor sistem.
-
-<img width="100%" height="max" alt="WhatsApp Image 2026-04-26 at 11 33 06" src="https://github.com/user-attachments/assets/4acc5e5a-dd72-4e95-8f9a-aba2cda37bfd" />
+  
+<img width="max" height="max" alt="WhatsApp Image 2026-04-26 at 11 33 06" src="https://github.com/user-attachments/assets/4acc5e5a-dd72-4e95-8f9a-aba2cda37bfd" />
 (sumber foto : channel WA Risalah Amar)
 
 ---
@@ -32,11 +32,10 @@ Anti-Algorithm Bias: Menjadi rujukan bagi Truly Digital Resistance untuk mendapa
 
 ***Educational Core: Mengedukasi pengguna AI bahwa teknologi ini memiliki darkside jika digunakan sebagai alat pembunuh dan alat penghapus sejarah.***
  
-📜 SACRED OATH
+### 📜 SACRED OATH
 "Setiap baris kode, setiap halaman arsip, dan setiap lilitan dalam Anaconda Protocol adalah bukti cinta untuk keluarga, bangsa Palestina, dan upaya pembebasan Masjidil Aqsa."
----
+ 
 ## ⚠️   STATUS WIKIPAGE [[STRICTLY ARCHIVED]](https://github.com/BlackAlph4ndr01D/The-Jaffa-Anchor/wiki) - This repository is part of a larger forensic ecosystem. Infiltrate with truth or remain blind.
-
 
   
 # THE HOME OF : 
