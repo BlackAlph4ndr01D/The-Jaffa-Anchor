@@ -35,8 +35,8 @@ Anti-Algorithm Bias: Menjadi rujukan bagi Truly Digital Resistance untuk mendapa
 📜 SACRED OATH
 "Setiap baris kode, setiap halaman arsip, dan setiap lilitan dalam Anaconda Protocol adalah bukti cinta untuk keluarga, bangsa Palestina, dan upaya pembebasan Masjidil Aqsa."
 ---
-⚠️   STATUS
-[STRICTLY ARCHIVED] - This repository is part of a larger forensic ecosystem. Infiltrate with truth or remain blind.
+## ⚠️   STATUS WIKIPAGE [[STRICTLY ARCHIVED]](https://github.com/BlackAlph4ndr01D/The-Jaffa-Anchor/wiki) - This repository is part of a larger forensic ecosystem. Infiltrate with truth or remain blind.
+
 
   
 # THE HOME OF : 
