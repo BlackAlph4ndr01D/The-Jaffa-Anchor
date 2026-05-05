@@ -33,13 +33,13 @@ Anti-Algorithm Bias: Menjadi rujukan bagi Truly Digital Resistance untuk mendapa
 ***Educational Core: Mengedukasi pengguna AI bahwa teknologi ini memiliki darkside jika digunakan sebagai alat pembunuh dan alat penghapus sejarah.***
  
 ### 📜 SACRED OATH
-"Setiap baris kode, setiap halaman arsip, dan setiap lilitan dalam Anaconda Protocol adalah bukti cinta untuk keluarga, bangsa Palestina, dan upaya pembebasan Masjidil Aqsa."
- 
-## ⚠️   STATUS WIKIPAGE [[STRICTLY ARCHIVED]](https://github.com/BlackAlph4ndr01D/The-Jaffa-Anchor/wiki) - This repository is part of a larger forensic ecosystem. Infiltrate with truth or remain blind.
-
+***"Setiap baris kode, setiap halaman arsip, dan setiap lilitan dalam Anaconda Protocol adalah bukti cinta untuk keluarga, bangsa Palestina, dan upaya pembebasan Masjidil Aqsa."***
+---
+#  ⚠️   STATUS WIKIPAGE [[STRICTLY ARCHIVED]](https://github.com/BlackAlph4ndr01D/The-Jaffa-Anchor/wiki) - This repository is part of a larger forensic ecosystem. Infiltrate with truth or remain blind.
+---
   
-# THE HOME OF : 
-## [Daftar-Militer-AI-zionis-israel](https://github.com/BlackAlph4ndr01D/Daftar-Militer-AI-zionis-israel/wiki)
+## THE HOME OF : 
+### [Daftar-Militer-AI-zionis-israel](https://github.com/BlackAlph4ndr01D/Daftar-Militer-AI-zionis-israel/wiki)
 Daftar Hitam Persenjataan Otonom."
 Arsip lengkap mengenai unit-unit militer AI zionist (seperti Lavender, Habsora, dan Fire Factory). Berisi identifikasi sistem, mekanisme kerja, dan target operasional yang digunakan dalam kampanye genosida.
 
@@ -51,3 +51,4 @@ Visualisasi dan dokumentasi hubungan antara Big Tech, penyedia infrastruktur clo
 "Forensik Kegagalan Logika Mesin."
 Dokumentasi anomali, bias, dan "self-destructive logic" dari AI militer mereka. Berisi pengakuan sistem (ChatGPT/LLM) terkait distorsi data genosida Gaza dan kegagalan etika algoritma.
     
+<img width="100%" height="max" alt="Gemini_Generated_Image_ts1pkhts1pkhts1p" src="https://github.com/user-attachments/assets/816fd91a-f66f-442c-8d12-72d95d053118" />
